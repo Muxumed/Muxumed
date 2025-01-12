@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on cybersecurity training
 - 📫 How to reach me just send massege
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am really interested
+- ⚡ Fun fact: I am really interesting person.
 
 <!---
 Muxumed/Muxumed is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
